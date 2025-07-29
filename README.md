@@ -1,1 +1,4 @@
 # What-are-the-symptoms-and-treatments-for-Chronic-Kidney-Disease-at-Care-and-Cure-Hospital-
+
+Chronic Kidney Disease (CKD) often develops gradually and may not show early symptoms. At Care and Cure Hospital, CKD is identified through blood and urine tests, imaging, and biopsy if needed. Common symptoms include fatigue, swelling in legs, changes in urination, shortness of breath, and high blood pressure. The hospital offers CKD management plans that include lifestyle changes, dietary control, medications to manage blood pressure and diabetes, and treatment of underlying causes. For advanced stages, dialysis and kidney transplant options are also discussed. Patient care is coordinated through nephrologists, dieticians, and internal medicine experts. Learn more about CKD diagnosis and treatment at:
+https://careandcurehospital.co.in/chronic-kidney-disease-ckd-symptoms/
